@@ -1,0 +1,1 @@
+# 8-sinif-matematik-10-lu-brans-deneme-2023-32
